@@ -10,3 +10,4 @@
  — Entre em contato comigo através:
 
 – kimberlyoliverio85@gmail.com
+– https://www.linkedin.com/in/kimberly-oliverio-7539a61b0
