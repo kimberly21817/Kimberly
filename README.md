@@ -2,22 +2,22 @@
 
  — Algumas coisas sobre mim:
 
-– 🍁 Tenho 15 anos...
+- 🍁 Tenho 15 anos...
 
 
-– 🎈Comecei há pouco na área da programação...
+- 🎈Comecei há pouco na área da programação...
 
 
-– 🏙 Frequento o curso de T.I...
+- 🏙 Frequento o curso de T.I...
 
 
-– 🌆 Busco aprender coisas novas...
+- 🌆 Busco aprender coisas novas...
 
 
  — Entre em contato comigo através:
 
 
-– kimberlyoliverio85@gmail.com
+- kimberlyoliverio85@gmail.com
 
 
-– https://www.linkedin.com/in/kimberly-oliverio-7539a61b0
+- https://www.linkedin.com/in/kimberly-oliverio-7539a61b0
